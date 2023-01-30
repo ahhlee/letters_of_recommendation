@@ -2,7 +2,7 @@
 Letters of Recommendation from prior co-workers
 
 
-##Courtney Mohr, co-worker at Trust & Will (worked on the same team): 
+## Courtney Mohr, co-worker at Trust & Will (worked on the same team): 
 
 Dear Hiring Manager,
 
